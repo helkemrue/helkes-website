@@ -1,4 +1,4 @@
 ---
-Helke Rüder Journalistin - Fotografin - Regisseurin
+Helke Rüder
 ---
-
+Journalistin - Fotografin - Regisseurin
