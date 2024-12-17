@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+Helke Rüder Journalistin - Fotografin - Regisseurin
 ---
 
